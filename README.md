@@ -1,2 +1,2 @@
 # SnowHack-Client
-snowhack cracked by azgod (taiwan nn)
+snowhack cracked by AzGOD (taiwan nn)
